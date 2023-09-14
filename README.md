@@ -1,2 +1,0 @@
-# Lola
-Lola rubber duckz
